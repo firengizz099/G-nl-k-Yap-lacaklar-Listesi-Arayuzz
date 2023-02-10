@@ -1,0 +1,1 @@
+# G-nl-k-Yap-lacaklar-Listesi-Arayuzz
